@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Musabinabdullah
 - 👀 I’m interested in ...AI
 - 🌱 I’m currently learning ...Computer Science
-- 💞️ I’m looking to collaborate on ..
-- 📫 How to reach me ...leave a message on my gmail on same webite
-- 😄 Pronouns: ...he/him (MUSLIM MahAllah)
+- 😄 Pronouns: ...he/him (MUSLIM Mash_Allah)
 - ⚡ Fun fact: ...
